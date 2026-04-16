@@ -3,7 +3,7 @@ Slick Footwork Rehearsals
 
 # Next rehersal
 
-19. Apr. 2026 
+On 19. Apr. 2026 @Klapperfeld
 
 ## Songs
 
