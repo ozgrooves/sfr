@@ -7,7 +7,7 @@ On 14. or 17. May (andy will let us know)
 
 On 21. May (safe)
 
-## Songs
+## New
 
 * its on [Em] [link](https://www.youtube.com/watch?v=42torkv3lr8)
 * cramp your style [Gb] [link](https://www.youtube.com/watch?v=uNyulvGd7FA)
@@ -16,6 +16,8 @@ On 21. May (safe)
 * jan jan [Cm] [link](https://www.youtube.com/watch?v=0n2Q36-ZYuk)
 * funky drummer [F] [link](https://www.youtube.com/watch?v=AoQ4AtsFWVM)
 * dirty old bossa nova [Fm] [link](https://www.youtube.com/watch?v=Fr88Aah9SkM) 
+
+## Refesh
 
 * dont joke with a hungry man [C] [link](https://www.youtube.com/watch?v=2Fes4YGrmoc) 
 * valdez in the country [Gm] [link](https://www.youtube.com/watch?v=U-SDYJnwLY4 )
