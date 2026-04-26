@@ -13,7 +13,7 @@ On 21. May (safe)
 * cramp your style [Gb] [link](https://www.youtube.com/watch?v=uNyulvGd7FA)
 * were a winner [D] [link](https://www.youtube.com/watch?v=0X7vyuWhzDA)
 * feel like making love [Fm] [link](https://www.youtube.com/watch?v=SMuMMhfHaNw)
-* jan jan [Cm] [link]()https://www.youtube.com/watch?v=0n2Q36-ZYuk
+* jan jan [Cm] [link](https://www.youtube.com/watch?v=0n2Q36-ZYuk)
 * funky drummer [F] [link](https://www.youtube.com/watch?v=AoQ4AtsFWVM)
 * dirty old bossa nova [Fm] [link](https://www.youtube.com/watch?v=Fr88Aah9SkM) 
 
